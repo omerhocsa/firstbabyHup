@@ -1,2 +1,2 @@
 # firstbabyHup
-medyum ve büy,lerin toplumdaki etkisi
+medyum ve büyülerin toplumdaki etkisi
